@@ -1,10 +1,10 @@
-Professional Astrill VPN Plugin | obfuscation + P2P support is the best Astrill VPN plugin with obfuscation and P2P support. Secure and optimized.
+
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://Fragmentvonditch.github.io/astrill-vpn-gz83/) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
  |---------------------|----------------------:|
 
 
